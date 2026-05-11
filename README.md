@@ -1,0 +1,1 @@
+# KOBI-Fiktif-Islem-Risk-Motoru
